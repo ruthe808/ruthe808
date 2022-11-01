@@ -1,4 +1,10 @@
-### Hi there 👋
+### Aloha :call_me_hand: I'm Ruth Enriquez
+
+:nerd_face: UCSB <br/>
+:computer: Master's of Environment Data Science Student
+
+
+
 
 <!--
 **ruthe808/ruthe808** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
