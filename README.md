@@ -1,6 +1,6 @@
 ### Alooooha, I'm Ruth Enriquez! :call_me_hand:
 
-😄 My pronouns: she/her
+😄 My pronouns: she/her <br/>
 :nerd_face: I am currently a student at the Univeristy of California, in Santa Barbara <br/>
 :computer: I am pursing a Master's of Environment Data Science
 
