@@ -1,7 +1,10 @@
-### Aloha :call_me_hand: I'm Ruth Enriquez
+### Alooooha, I'm Ruth Enriquez! :call_me_hand:
 
-:nerd_face: UCSB <br/>
-:computer: Master's of Environment Data Science Student
+😄 My pronouns: she/her
+:nerd_face: I am currently a student at the Univeristy of California, in Santa Barbara <br/>
+:computer: I am pursing a Master's of Environment Data Science
+
+
 
 
 
