@@ -9,7 +9,7 @@
 🔍 I am interested in working on food waste 🍌, corporate sustainability 🏢, and Scope 1 & 2 Emissions 💨
 
 
-### Mahalooo, for checking my page out! [Let's connect!](https://www.linkedin.com/in/ruthe808/)
+### Mahalooo, for checking my page out! 🌺 [Let's connect!](https://www.linkedin.com/in/ruthe808/)
 
 
 
