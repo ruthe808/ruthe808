@@ -1,9 +1,11 @@
 ### Alooooha, I'm Ruth Enriquez! :call_me_hand:
 
 😄 My pronouns: she/her <br/>
-:nerd_face: I am currently a student at the Univeristy of California, in Santa Barbara <br/>
-:computer: I am pursing a Master's of Environment Data Science
+🤓 I am currently a student at the Univeristy of California, in Santa Barbara <br/>
+💻 I am pursing a Master's of Environment Data Science
 
+💖 I am hoping to combine my passions for corporate finance 💰, information technology 🖥️, and sustainabilty 🌎 
+📈 I bring with me 6 years of experience in financial management, analysis, and visualization
 
 
 
