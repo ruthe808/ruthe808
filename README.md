@@ -4,8 +4,10 @@
 🤓 I am currently a student at the Univeristy of California, in Santa Barbara <br/>
 💻 I am pursing a Master's of Environment Data Science
 
-💖 I am hoping to combine my passions for corporate finance 💰, information technology 🖥️, and sustainabilty 🌎 
-📈 I bring with me 6 years of experience in financial management, analysis, and visualization
+💖 I am hoping to combine my passions for corporate finance 💰, information technology (IT) 🖥️, and sustainabilty 🌎 <br/>
+📈 I bring with me 6 years of experience in IT financial management, analysis, and visualization <br/>
+🔍 I am interested in working on food waste 🍌, corporate sustainability 🏢, andScope 1 & 2 Emissions 💨
+
 
 
 
